@@ -8,7 +8,7 @@
 <h2>About me</h2>
 
 I am Abhipsa, currently a junior at College of Engineering and Technology, Bhubaneswar. I am very keen to learn new technologies and use them to either create something useful or improve the existing softwares.   
-⚡ Fun fact: I love to connect with people and learn about their journey, it helps me to open up my mind for different perspectives on various domains.   
+⚡ Fun fact: I have an illustration page on Instagram!   
 💬 Ask me anything, I will be more than happy to help :D
 <h3>Summary</h3>
 
